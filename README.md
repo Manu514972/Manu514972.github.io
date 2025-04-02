@@ -11,4 +11,6 @@ On a bright summer's day I was born in the city of Montreal, Canada. This child 
 
 ---
 
-![Frog](frog.jpeg) 
+As a child, I was amazed by animals and the human body. Looking at picture books about nature planted the seeds that made me go into biology later in life...
+
+
